@@ -1,5 +1,5 @@
 
 
 ## Members of groupe
-kayumba Tshikwat Nathan & kayombo Abdoule Ali
+kayumba Tshikwat Nathan & kayombo Abdoul Ali
 
